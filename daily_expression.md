@@ -18,6 +18,17 @@ You are hard to follow 你难懂
 
 It's expensive
 
+Its no problem at all!
+
+
 So how's it go ? 结果如何
+
+
+This is what we are going to be doing if you’d like to read over it.
+
+yes. please
+
+
+
 
 
